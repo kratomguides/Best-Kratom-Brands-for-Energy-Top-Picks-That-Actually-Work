@@ -4,6 +4,7 @@ You're not alone. Millions of Americans turn to kratom for a natural energy boos
 
 ---
 [Buy Premium Energy Kratom from Jack Botanicals](https://reviewscode.com/jb-shop)
+
 **AKA Certified | 9+ Lab Tests/Batch | 30% off "Jack30"**
 ---
 
