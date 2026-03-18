@@ -2,11 +2,11 @@ Feeling drained? Struggling to push through long workdays, intense workouts, or 
 
 You're not alone. Millions of Americans turn to kratom for a natural energy boost. The kratom market hit **$1.3 billion in 2022** and keeps growing. But here's the problem — most brands sell low-quality, under-tested powder that does nothing. Or worse, harms you.
 
----
-## [Buy Premium Energy Kratom from Jack Botanicals](https://reviewscode.com/jb-shop)
 
-**AKA Certified | 9+ Lab Tests/Batch | 30% off "Jack30"**
----
+### [Buy Premium Energy Kratom from Jack Botanicals](https://reviewscode.com/jb-shop)
+
+### AKA Certified | 9+ Lab Tests/Batch | 30% off "Jack30"
+
 
 The right kratom brand changes everything. Clean sourcing, rigorous lab testing, and proper strain selection deliver real, sustained energy. No jitters. No crash. Just clean focus and motivation.
 
